@@ -6,4 +6,4 @@ A dildo, a kitten, a Gopro puppy, a Gopro brushbot, and a drone are inside the R
 ## script: https://docs.google.com/document/d/1lyUvO2y9rOvTVaJMsbqtnHdannkATEE4Mqj97rLB9SA/edit
 ## video: https://www.youtube.com/watch?v=P7GIxG6EEVg
 ## audioscript: https://drive.google.com/file/d/0B1gxV_rcE2HKM0g1U1M4T3pMODA/view?usp=sharing
-## tutorial video:https://www.youtube.com/watch?v=0rpxEs9ooqg&feature=youtu.be
+## tutorial video: https://www.youtube.com/watch?v=0rpxEs9ooqg&feature=youtu.be
